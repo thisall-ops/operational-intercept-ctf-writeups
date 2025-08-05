@@ -1,4 +1,4 @@
-Operation Intercept 2025 — Our Team's Journey
+                                                                                            Operation Intercept 2025 — Our Team's Journey
 
 Me and my team, CØDE BREAKERS, recently took part in Operation Intercept 2025, and wow — this was no ordinary CTF. From start to finish, it felt like a real-world simulation where every challenge was part of a bigger, hidden story waiting to be uncovered.
 
